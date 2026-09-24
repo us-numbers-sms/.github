@@ -1,15 +1,15 @@
-# [US Numbers SMS](https://freereceivesms.top/) – Online SMS Reception with Temporary US Phone Numbers
+# [US Numbers SMS](https://otpdrop.com/) – Online SMS Reception with Temporary US Phone Numbers
 
-**[US Numbers SMS](https://freereceivesms.top/)** is a web-based service that provides temporary phone numbers from the United States for receiving SMS online. It is designed for users who need quick access to SMS messages without using a personal phone number, SIM card, or mobile device.
+**[US Numbers SMS](https://otpdrop.com/)** is a web-based service that provides temporary phone numbers from the United States for receiving SMS online. It is designed for users who need quick access to SMS messages without using a personal phone number, SIM card, or mobile device.
 
 The service works directly in your browser and allows instant SMS reception for verification, registration, and testing purposes.
 
-[![button](https://github.com/user-attachments/assets/2b9276a2-8c16-4f44-aa00-407260399619)](https://freereceivesms.top/)
-[![button](https://github.com/user-attachments/assets/7dc2b965-94a2-4590-a8d4-d413a15c0b8c)](https://freereceivesms.top/)
+[![button](https://github.com/user-attachments/assets/2b9276a2-8c16-4f44-aa00-407260399619)](https://otpdrop.com/)
+[![button](https://github.com/user-attachments/assets/7dc2b965-94a2-4590-a8d4-d413a15c0b8c)](https://otpdrop.com/)
 
-## What Makes [US Numbers SMS](https://freereceivesms.top/) Different?
+## What Makes [US Numbers SMS](https://otpdrop.com/) Different?
 
-Unlike traditional mobile numbers, **[US Numbers SMS](https://freereceivesms.top/)** are virtual and temporary. They are publicly accessible and created specifically for short-term use cases such as receiving verification codes or confirmation messages.
+Unlike traditional mobile numbers, **[US Numbers SMS](https://otpdrop.com/)** are virtual and temporary. They are publicly accessible and created specifically for short-term use cases such as receiving verification codes or confirmation messages.
 
 You don’t need to create an account, install software, or provide any personal details.
 
